@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **mrhacks348@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1b4T_J0O8mip8pHm37JJhLzvdBQMlO_P8/view?usp=sharing](https://drive.google.com/file/d/1b4T_J0O8mip8pHm37JJhLzvdBQMlO_P8/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1cwYTDBtVTnmVzLd1Adv2eOxRiFX0KyI2/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
